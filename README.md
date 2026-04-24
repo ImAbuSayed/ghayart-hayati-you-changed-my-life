@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> عيونك سحر بياخدني لبعيد
+> ولمسة إيدك بتخلي العمر جديد
+> تعالي نعيش الليلة في غرام
+> يا حبيبي حبك في قلبي بيزيد
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
